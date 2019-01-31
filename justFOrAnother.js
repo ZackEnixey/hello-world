@@ -1,6 +1,6 @@
 Hi Zoran,
 
-my name is ZACK
+  my name is ZACK
 
 I noticed that it's been about three weeks since you signed up with Logojoy, but that you still hadn't downloaded your favorite logo.
 
