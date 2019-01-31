@@ -1,5 +1,7 @@
 Hi Zoran,
 
+  my name is ZACK
+
 I noticed that it's been about three weeks since you signed up with Logojoy, but that you still hadn't downloaded your favorite logo.
 
 As such, I thought our prices may have been too expensive for your budget?
